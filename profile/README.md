@@ -14,5 +14,5 @@ In addition to these two influential leaders, Void-Crew is bolstered by a devote
 
 As Void-Crew continues to evolve and expand, its commitment to providing an unparalleled ship-based SS13 experience remains at the forefront, all thanks to the dedication and vision of its leadership and the collaborative efforts of its entire team.
 
-[ Yeah an AI wrote this lol ]
+[ Yeah an AI wrote this lol ] [Join our Discord!](https://discord.gg/AQeDVXUgMV)
 
